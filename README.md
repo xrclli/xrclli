@@ -1,0 +1,5 @@
+- 👋 Hi, I’m xrclli
+- 👀 I’m interested in video games and anime.
+- 🌱 I’m currently learning Spanish.
+- 💞️ I’m looking to collaborate on I’m looking to collaborate on learning Spanish and some things to watch series and anime.
+- 📫 How to reach me email :jiroash08@gmail.com discord: xrclli#4683
